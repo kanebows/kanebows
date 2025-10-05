@@ -1,1 +1,1 @@
-## Attacker. | Fighter: On the Web And On the Ring!
+## Fighter: On the Web And On the Ring!
